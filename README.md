@@ -1,1 +1,1 @@
-# Proyectos-programaci-n-aplicada
+# Proyectos-programacion aplicada
